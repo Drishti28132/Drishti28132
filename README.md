@@ -3,7 +3,7 @@
 - 🌱 I’m currently pursuing Btech CSE
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: Instagram - jhadrishti3@gmail.com
-- 😄 Pronouns: ...
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: I am quite creative in writing..
 
 <!---
